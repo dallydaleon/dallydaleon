@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-w2i, check rentry for info. nuu im not changing the links of the imgs! too lazy gomenne!
+back on this account got bored. dont play pt as often anymoreeeeee
 </p>
