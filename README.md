@@ -7,5 +7,5 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=dallydaleon&label=test">
+  <img src="https://komarev.com/ghpvc/?username=dallydaleon&label=fans&color=DF8489">
   </p>
