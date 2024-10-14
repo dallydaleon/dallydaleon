@@ -1,6 +1,4 @@
 <p align="center">
-paint me.. skibiditastically...</p>
-<p align="center">
 <img src="https://imgur.com/SZkduUf.png">
 </p>
 
