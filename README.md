@@ -7,13 +7,3 @@
   </p>
 
 <p align="center">why dont they allow me to say fart in pony town</p>
-
-<p align="center">
-<img src="https://file.garden/ZlHfQt_wRDoV_nTp/Screenshot%202024-10-29%20172151.png">
-</p>
-<p align="center">
-<img src="https://file.garden/ZlHfQt_wRDoV_nTp/Screenshot%202024-10-29%20172137.png">
-</p>
-<p align="center">
-they left before i could say anything else FUCKING FIGHT ME COWARD
-</p>
