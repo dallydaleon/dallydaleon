@@ -6,4 +6,9 @@
   <img src="https://komarev.com/ghpvc/?username=dallydaleon&label=fans&color=DF8489&base=100000&style=plastic">
   </p>
 
-<p align="center">why dont they allow me to say fart in pony town</p><p align="center">a bit unresponsive, sorry bout that!</p>
+<p align="center">why dont they allow me to say fart in pony town</p>
+
+<p align="center">
+<img src="https://file.garden/ZlHfQt_wRDoV_nTp/images%20(11).png">
+</p>
+emotional
