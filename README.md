@@ -8,7 +8,7 @@
 
 <p align="center">why dont they allow me to say fart in pony town</p>
 
-links [atabook](https://daleon.atabook.org) . [rentry](rentry.co/dallydaleon) . [rentry #2](rentry.co/rebellion)
+links [atabook](https://daleon.atabook.org) . [rentry](https://rentry.co/dallydaleon) . [rentry #2](https://rentry.co/rebellion)
 
 
 please help [palestine](https://arab.org/click-to-help/palestine/)
