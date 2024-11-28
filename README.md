@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://imgur.com/SZkduUf.png">
+<img src="https://file.garden/ZlHfQt_wRDoV_nTp/images%20(11).png">
 </p>
 
 <p align="center">
@@ -8,7 +8,7 @@
 
 <p align="center">why dont they allow me to say fart in pony town</p>
 
-<p align="center">
-<img src="https://file.garden/ZlHfQt_wRDoV_nTp/images%20(11).png">
-</p>
-emotional
+links [atabook](https://daleon.atabook.org) . [rentry](rentry.co/dallydaleon) . [rentry #2](rentry.co/rebellion)
+
+
+please help [palestine](https://arab.org/click-to-help/palestine/)
