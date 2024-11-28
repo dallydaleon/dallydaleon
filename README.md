@@ -10,5 +10,6 @@
 
 links [atabook](https://daleon.atabook.org) . [rentry](https://rentry.co/dallydaleon) . [rentry #2](https://rentry.co/rebellion)
 
+"and as always, [i need your love](https://open.spotify.com/track/6YgDI91kaNJeGFWWFTMnAC?si=oxAKSxr9SrOabkdExHGDYw)"
 
-please help [palestine](https://arab.org/click-to-help/palestine/)
+please help [palestine](https://arab.org/click-to-help/palestine/), do your daily clicks ^-^
