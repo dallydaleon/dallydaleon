@@ -8,7 +8,7 @@
 
 <p align="center">why dont they allow me to say fart in pony town</p>
 
-links [atabook](https://daleon.atabook.org) . [rentry](https://rentry.co/dallydaleon) . [rentry #2](https://rentry.co/rebellion)
+links [atabook](https://daleon.atabook.org) . [rentry](https://rentry.co/dallydaleon) . [rentry #2](https://rentry.co/rebellion) . [spotify playlist](https://open.spotify.com/playlist/17GlWD32hYXw4SbutIFL8c?si=XqqLx36cT2SgMbpT4p-s3A)
 
 "and as always, [i need your love](https://open.spotify.com/track/6YgDI91kaNJeGFWWFTMnAC?si=oxAKSxr9SrOabkdExHGDYw)"
 
