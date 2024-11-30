@@ -3,13 +3,5 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=dallydaleon&label=CATHYS+CLEARED&color=DF8489&base=100000&style=plastic">
+  <img src="https://komarev.com/ghpvc/?username=dallydaleon&label=CATHYS+CLEARED&color=0F0F0F&base=100000">
   </p>
-
-<p align="center">why dont they allow me to say fart in pony town</p>
-
-links [atabook](https://daleon.atabook.org) . [rentry](https://rentry.co/dallydaleon) . [rentry #2](https://rentry.co/rebellion) . [spotify playlist](https://open.spotify.com/playlist/17GlWD32hYXw4SbutIFL8c?si=XqqLx36cT2SgMbpT4p-s3A)
-
-"and as always, [i need your love](https://open.spotify.com/track/6YgDI91kaNJeGFWWFTMnAC?si=oxAKSxr9SrOabkdExHGDYw)"
-
-please help [palestine](https://arab.org/click-to-help/palestine/), do your daily clicks ^-^
