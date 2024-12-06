@@ -12,3 +12,5 @@
 <p align="center">
   <img src="https://file.garden/ZlHfQt_wRDoV_nTp/aoppella_2nd_original_Come%20on%20up%2C%20Baby.png">
   </p>
+
+  i love fyam ^_^
