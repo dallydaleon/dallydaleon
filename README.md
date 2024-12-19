@@ -6,6 +6,4 @@
   <img src="https://static.wikia.nocookie.net/shipping/images/3/39/Revale_remember_volume2_chapter2.jpg/revision/latest?cb=20240223144856">
   
 <br></br>
-<br></br>
-
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQJ-6ROEi3sB9OL7-GrxUTcshc0HUyIm30EVg&s)
