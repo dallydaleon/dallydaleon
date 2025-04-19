@@ -4,5 +4,3 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=it2ib0xsv0lcpad20hktrepj9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://youtu.be/xHa6a3FtPJg?si=Yg89uBRatoaSeaUi)
 <br>talk to me about 2d music projects ill be happy :)
-<br></br><br></br>
-<img src="https://file.garden/ZlHfQt_wRDoV_nTp/Screenshot%202025-02-22%20220038.png" width=500><br> izuleo world
