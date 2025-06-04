@@ -4,5 +4,3 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=it2ib0xsv0lcpad20hktrepj9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://youtu.be/xHa6a3FtPJg?si=Yg89uBRatoaSeaUi)
 <br>talk to me about <a href="https://2d-music-projects-multimedia.fandom.com/wiki/2D_Music_Projects_%26_Multimedia_Wiki">2d music projects</a> ill be happy :)<br></br>
-<img src="https://static.wikia.nocookie.net/paradox-live/images/b/b7/Allen_Yumekorone.jpg/revision/latest?cb=20230707214121" width=300>
-<br>dis how i be sometimes
