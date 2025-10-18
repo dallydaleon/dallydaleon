@@ -1,5 +1,5 @@
 <div align="center">
-  github user of 2 years and i still dont know how to add videos here<br><a href="https://youtu.be/vSrOWujV6Ws?si=2NsffOe5xiRm8-Vn"><img width="350" height="550" alt="image" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTZkwJbYOlmnOCGmKPClvqQFiIH1vMAMMEFj0LUgDoOlz6dAy0HxD1GzvN4&s=10" />
+  github user of 2 years and i still dont know how to add videos here<br><a href="https://youtu.be/vSrOWujV6Ws?si=2NsffOe5xiRm8-Vn"><img width="700" height="700" alt="image" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTZkwJbYOlmnOCGmKPClvqQFiIH1vMAMMEFj0LUgDoOlz6dAy0HxD1GzvN4&s=10" />
 </a><br></br><a href="https://daleon.atabook.org">atabook</a> . <a href="https://yoiyaminiainori.straw.page/">strawpage</a> . <a href="https://rentry.co/dallydaleon">rentry</a>
 <br></br><img src="https://komarev.com/ghpvc/?username=dallydaleon&label=CATHYS+CLEARED&color=ff0000&base=1000000&style=plastic">
 
