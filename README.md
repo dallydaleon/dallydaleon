@@ -1,5 +1,6 @@
 <div align="center">
-<a href="https://www.youtube.com/watch?v=YyUyLvL5rEA&list=RDYyUyLvL5rEA&start_radio=1"><img width="500" height="700" alt="image" src="https://www.aoppella.com/assets/img/special/ss/illustration/vol2_ssimg.jpg" />
+<code style="color : poo">"天上天下唯我獨尊"</code><br><br>
+<a href="https://www.youtube.com/watch?v=YyUyLvL5rEA&list=RDYyUyLvL5rEA&start_radio=1"><img width="300" alt="image" src="https://file.garden/ZlHfQt_wRDoV_nTp/Untitled91_20251111032630.png" />
 </a><br><br><a href="https://daleon.atabook.org">atabook</a> &nbsp;&nbsp; <a href="https://rentry.co/dallydaleon">rentry</a> &nbsp;&nbsp; <a href="https://open.spotify.com/playlist/3OPoEwu7qH0Xl1AwPkHhWx?si=1e9d5cec6f824ad3">playlist</a><br>
   <a href="https://2d-music-projects-multimedia.fandom.com/wiki/2D_Music_Projects_%26_Multimedia_Wiki">♡</a>
 <br><br><img src="https://komarev.com/ghpvc/?username=dallydaleon&label=CATHYS+CLEARED&color=E4007F&base=1000000&style=plastic">
