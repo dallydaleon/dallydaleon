@@ -4,4 +4,4 @@
   <a href="https://2d-music-projects-multimedia.fandom.com/wiki/2D_Music_Projects_%26_Multimedia_Wiki">♡</a>
 <br><br><img src="https://komarev.com/ghpvc/?username=dallydaleon&label=CATHYS+CLEARED&color=E4007F&base=1000000&style=plastic">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=it2ib0xsv0lcpad20hktrepj9&cover_image=true&theme=novatorem&show_offline=false&background_color=E4007F&interchange=false&bar_color=E4007F&bar_color_cover=false)](https://youtu.be/xHa6a3FtPJg?si=Yg89uBRatoaSeaUi)<br>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=it2ib0xsv0lcpad20hktrepj9&cover_image=true&theme=novatorem&show_offline=false&background_color=E4007F&interchange=false&bar_color=E4007F&bar_color_cover=false)](https://open.spotify.com/playlist/3OPoEwu7qH0Xl1AwPkHhWx?si=1e9d5cec6f824ad3)<br>
