@@ -1,5 +1,6 @@
 <div align="center">
-<code style="color : poo">"天上天下唯我獨尊"</code><br><br>
+<code style="color : poo">"Throughout heaven and earth,
+  I alone am worthy of honour."</code><br><br>
 <a href="https://www.youtube.com/watch?v=YyUyLvL5rEA&list=RDYyUyLvL5rEA&start_radio=1"><img width="300" alt="image" src="https://file.garden/ZlHfQt_wRDoV_nTp/Untitled91_20251111032630.png" />
 </a><br><br><a href="https://daleon.atabook.org">atabook</a> &nbsp;&nbsp; <a href="https://rentry.co/dallydaleon">rentry</a> &nbsp;&nbsp; <a href="https://open.spotify.com/playlist/3OPoEwu7qH0Xl1AwPkHhWx?si=1e9d5cec6f824ad3">playlist</a><br>
   <a href="https://2d-music-projects-multimedia.fandom.com/wiki/2D_Music_Projects_%26_Multimedia_Wiki">♡</a>
